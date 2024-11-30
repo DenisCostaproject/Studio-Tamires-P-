@@ -1,2 +1,2 @@
-# Studio-Tamires-P-
+# Estetica STP
 Landing Page da profissional de estética facial Tamires Pó
